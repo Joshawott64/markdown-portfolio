@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. TF2
+2. Steak
+3. LEGO
